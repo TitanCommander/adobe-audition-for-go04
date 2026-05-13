@@ -1,4 +1,4 @@
-# 
+# instant Adobe Audition for PC | Adobe Audition for Windows Effect | multi-track-editing + real-time-preview offers the most advanced Adobe Audition for PC | Adobe Audition for
 
 
 
